@@ -10,7 +10,7 @@
 
   <br>
 
-  ## 🌐 [https://emanuelgda.github.io/Site--ADV.A.MELO-M.GOMES/])
+  ## 🌐 [https://emanuelgda.github.io/Site--ADV.A.MELO-M.GOMES/]
   
 </div>
 
